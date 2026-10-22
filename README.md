@@ -1,0 +1,1 @@
+# Katarína Grich — náhľad
